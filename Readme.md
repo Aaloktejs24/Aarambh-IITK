@@ -11,10 +11,7 @@ life at iitk
 
 muragesh
 
- ForParents
-Accomondation
-📘 OurFocus
-footer acch
-videos
+ ForParents i will work on it
+
 
 
